@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @BambangJ
-- 👀 I’m interested in ...
+- 👀 I’m interested in you
 - 🌱 I’m currently learning how to turn on PC
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on online game 
 - 📫 How to reach me
 
 <!---
